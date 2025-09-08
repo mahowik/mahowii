@@ -52,8 +52,8 @@ https://www.youtube.com/user/artnesterof/videos
 
 Blogs:
 - https://www.rcgroups.com/forums/showthread.php?t=2787668
+- https://rcopen.com/blogs/83206
 - http://www.multiwii.com/forum/viewtopic.php?f=8&t=7877
-- http://forum.rcdesign.ru/blogs/83206/
 
 Enjoy! ;)  
 
